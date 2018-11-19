@@ -1,3 +1,3 @@
 # bootstrap
 
-i know
+apa ke
